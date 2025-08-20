@@ -4,6 +4,7 @@
 
 [![Tumblr-l-2593062143292748.png](https://i.postimg.cc/J4pXXhVq/Tumblr-l-2593062143292748.png)](https://postimg.cc/D8bmknzJ)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Current names in use :
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀!⠀⠀⠀Nana 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀!   Felice (preferred at the moment.)
+Current names in use :
+
+Nana !
+Felice ! (preferred for now)
